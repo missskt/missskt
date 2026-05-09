@@ -26,7 +26,7 @@
 - 🎓 **B.Tech Computer Science Engineering** · Sagar Institute of Research & Technology
 - 💬 Ask me about **Figma, UI/UX Design, Prototyping, User Research, Design Thinking**
 - 📫 Reach me at **[malviyasanskriti06@gmail.com](mailto:malviyasanskriti06@gmail.com)**
-- 📞 **+91 7000 182 936**
+- 📞 ****
 
 <br clear="right"/>
 
